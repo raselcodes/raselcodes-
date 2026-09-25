@@ -1,4 +1,5 @@
-[![Uploading Abstract Technology Profile LinkedIn Banner.png…]()](https://canva.link/et25qx1tmm235iv)
+<img width="1584" height="396" alt="Abstract Technology Profile LinkedIn Banner" src="https://github.com/user-attachments/assets/f3fb854a-4f1a-4bac-affb-951ae1c8e648" />
+
 
 
 
