@@ -1,4 +1,4 @@
-![Uploading Abstract Technology Profile LinkedIn Banner.png…]()
+[![Uploading Abstract Technology Profile LinkedIn Banner.png…]()](https://canva.link/et25qx1tmm235iv)
 
 
 
